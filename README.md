@@ -1,5 +1,6 @@
 # Applying-learning-theories-to-improve-students-learning.-
 DAY 1 – Rooms in a House
+
 https://www.canva.com/design/DAGlkRFU62c/ht0g5JHO445M0C9AxMweFw/edit
 
 **Aim:
@@ -14,7 +15,7 @@ Can use short sentence patterns: “This is the kitchen.”
 -Drawing worksheet: “My Dream House”
 **Procedure:
 Warm-up
-Let students watch a funny video about different rooms in a house of 2 cute friends, a bear and a rabbit “where are you?”. Play the video again , pause at a specific room, ask the student “what do you see?”, “what is this?”
+Let students watch a funny video about different rooms in a house of 2 cute friends, a bear and a rabbit “where are you?”. Play the video again , pause at a specific room, ask the student “what do you see?”, “what is this?”  
 https://www.youtube.com/watch?v=WfLBN0FVYNM
 Ask the student to speak out loud the word with the teacher.
 “good job girl”
